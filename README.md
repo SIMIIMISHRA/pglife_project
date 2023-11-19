@@ -1,1 +1,2 @@
 # pglife_project
+Welcome to the PG Life project! 🌟🏢 Our platform is designed to make finding PG accommodations a breeze. With just a few clicks, you can search for PGs in your desired location, explore ratings and reviews from other users, and even take a virtual tour of the rooms with our extensive collection of pictures. We also provide detailed information about rental prices to help you make an informed decision. Say goodbye to the hassle of finding the perfect PG – PG Life has got you covered! 💻🔍"
